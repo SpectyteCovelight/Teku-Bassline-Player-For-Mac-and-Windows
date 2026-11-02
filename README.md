@@ -63,5 +63,3 @@ BLUE TEKU LOGO LIKE IN THE MOVIE
 
 You can Download From here 
 https://charlybrown27.gumroad.com/l/fgteny
-https://charlybrown27.gumroad.com/l/fgteny
-https://charlybrown27.gumroad.com/l/fgteny
